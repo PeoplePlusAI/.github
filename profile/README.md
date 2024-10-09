@@ -8,5 +8,5 @@ If you are looking to volunteer, email us at info@peopleplus.ai with [P+AI Volun
 If you are an organization, email us at info@peopleplus.ai with [P+AI Collab] in the subject
 
 ### STAY UPDATED
-Connect with us on our social media : 
-[linkedin](https://www.linkedin.com/company/people-ai/)
+WhatsApp Community: https://chat.whatsapp.com/LeFMP3usmel8XXOjwaHINg
+Events Page: https://lu.ma/peopleplusai
