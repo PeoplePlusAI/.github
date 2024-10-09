@@ -5,6 +5,7 @@ You can read more about us on [people+ai website](https://peopleplus.ai/)
 
 ### Join the COMMUNITY
 If you are looking to volunteer, email us at info@peopleplus.ai with [P+AI Voluneer] in the subject
+
 If you are an organization, email us at info@peopleplus.ai with [P+AI Collab] in the subject
 
 ### STAY UPDATED
