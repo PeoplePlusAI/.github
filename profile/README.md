@@ -9,4 +9,5 @@ If you are an organization, email us at info@peopleplus.ai with [P+AI Collab] in
 
 ### STAY UPDATED
 WhatsApp Community: https://chat.whatsapp.com/LeFMP3usmel8XXOjwaHINg
+
 Events Page: https://lu.ma/peopleplusai
